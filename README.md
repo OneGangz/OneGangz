@@ -52,7 +52,7 @@ I care about:
 ## 📫 Find Me
 
 - GitHub: https://github.com/OneGangz  
-- LinkedIn: https://linkedin.com/in/gangasarath-s-19793a41  
+- LinkedIn: https://www.linkedin.com/in/onegangz/
 
 ---
 
